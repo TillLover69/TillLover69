@@ -3,9 +3,7 @@
 
  - I'm really bad at conversation at first, I apologize in advance  ..
 
- - #1 Ivantill supremacist
-
- - Heavy Ivan (alnst) Kin 
+ - #1 Ivantill supremacist | Heavy Ivan (alnst) Kin 
 
 
 ![IMG_3735](https://github.com/user-attachments/assets/d53d01be-afa3-454f-9dcc-1a7b9433d373)
