@@ -10,7 +10,7 @@
 
 P̲O̲N̲Y̲ T̲O̲W̲N̲ :
 
- - Im usually in the Arcane / Alnst area!  : Free to interact :  Cuddlecomf  :-D
+ - Im usually in the Arcane / Alnst area!  :- Free to interact -:  Cuddlecomf  :-D
 
 
   : I dont roleplay, it makes me uncomfortable.. !
