@@ -1,7 +1,7 @@
  - ˚˓˒ 6teen (2009) : He/Him
 
 
- - I'm really bad at conversation at first, I apologize in advance  ..
+ : I'm really bad at conversation at first, I apologize in advance  ..
 
  - #1 Ivantill supremacist : H̲e̲a̲v̲y̲ I̲v̲a̲n̲ (alnst)  k̲i̲n̲
 
@@ -12,11 +12,11 @@ P̲O̲N̲Y̲ T̲O̲W̲N̲ :
 
  - Im usually in the Arcane / Alnst area !
 
-  - Free to interact : Cuddlecomf  :-D
+  : Free to interact : Cuddlecomf  :-D
 
-  - Dont copy my ponies ‼️
+  : Dont copy my ponies ‼️
 
-  - I dont roleplay, it makes me uncomfortable.. !
+  : I dont roleplay, it makes me uncomfortable.. !
 
 
 
