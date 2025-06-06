@@ -13,7 +13,7 @@ P̲O̲N̲Y̲ T̲O̲W̲N̲ :
  - Im usually in the Arcane / Alnst area!  :- Free to interact -:  Cuddlecomf ꪔ
 
 
-   - : I dont roleplay, it makes me uncomfortable.. !
+   - : I dont roleplay, it makes me uncomfortable. 
 
 
    - : Dont copy my ponies ‼️
