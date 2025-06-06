@@ -14,7 +14,7 @@ P̲O̲N̲Y̲ T̲O̲W̲N̲ :
 
   - Free to interact : Cuddlecomf  :-D
 
-  - ╯DO NOT COPY!!
+  - Dont copy my ponies ‼️
 
   - I dont roleplay, it makes me uncomfortable.. !
 
