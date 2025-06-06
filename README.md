@@ -1,9 +1,9 @@
- - ˚˓˒ 6teen (2009) : He/Him
+ - ˚˓˒ 6̲teen (200̲9̲) : He/Him
 
 
  : I'm really bad at conversation at first, I apologize in advance  ..
 
- - #1 Ivantill supremacist | H̲e̲a̲v̲y̲ I̲v̲a̲n̲ (alnst)  k̲i̲n̲ ❀∿
+ - #1 Ivantill supremacist : H̲e̲a̲v̲y̲ I̲v̲a̲n̲ (alnst)  k̲i̲n̲ ❀∿
 
 
 ![IMG_3735](https://github.com/user-attachments/assets/d53d01be-afa3-454f-9dcc-1a7b9433d373)
