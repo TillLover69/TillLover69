@@ -10,13 +10,13 @@
 
 P̲O̲N̲Y̲ T̲O̲W̲N̲ :
 
- - Im usually in the Arcane / Alnst area !
+ - Im usually in the Arcane / Alnst area!  : Free to interact :  Cuddlecomf  :-D
 
-  : Free to interact | Cuddlecomf  :-D
-
-  : Dont copy my ponies ‼️
 
   : I dont roleplay, it makes me uncomfortable.. !
+
+
+  : Dont copy my ponies ‼️
 
 
 
