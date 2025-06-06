@@ -1,4 +1,4 @@
- - ˚˓˒ I am 16 (2009) - He/Him
+ - ˚˓˒ 6teen (2009) - He/Him
 
 
  - I'm really bad at conversation at first, I apologize in advance  ..
