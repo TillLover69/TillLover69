@@ -3,6 +3,8 @@
 
  - I'm really bad at conversation at first, I apologize in advance  ..
 
+ - #1 Ivantill supremacist
+
  - Heavy Ivan (alnst) Kin 
 
 
