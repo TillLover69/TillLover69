@@ -19,7 +19,5 @@ P̲O̲N̲Y̲ T̲O̲W̲N̲ :
    - : Dont copy my ponies ‼️
 
 
-
+           - 89/70
 ⋆. 𐙚 ˚: M̲o̲r̲e̲ i̲n̲f̲o̲ a̲b̲t̲ m̲e̲ i̲n̲ m̲y̲ o̲t̲h̲e̲r̲ l̲i̲n̲k̲s̲! 
-
-    - 89/70
