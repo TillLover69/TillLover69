@@ -1,7 +1,6 @@
  - ˚˓˒ 6̲teen (200̲9̲) : He/H̲i̲m̲ ∿
 
 
- : I'm really bad at conversation at first, I apologize in advance  ..
 
  - #1 Ivantill supremacist : H̲e̲a̲v̲y̲ I̲v̲a̲n̲ (alnst)  k̲i̲n̲ ❀ ∿
 
