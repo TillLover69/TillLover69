@@ -11,7 +11,7 @@
          < 89/70 > 𓏲𑁘 
 
 
-   - : Dont copy my ponies, I will find you. ‼️ ∿
+   
 
 
 
