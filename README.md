@@ -6,7 +6,8 @@
  - THE #1 TILL GOONER
 
 
-![IMG_5840](https://github.com/user-attachments/assets/91a22879-cf8f-4473-8b8e-0c2a5b1c9555)
+![IMG_5841](https://github.com/user-attachments/assets/96ebc0d8-0092-4799-ac9c-d5da07c47551)
+
 
 
          < 89/70 > 𓏲𑁘 
