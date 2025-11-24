@@ -10,5 +10,5 @@
 
 
 
- - #1 Ivantill supremacist : Heavy Ivan (alnst) fick̲i̲n̲ / I̲R̲L̲. ❀ 
- - THE #1 TILL GOONER
+ - Heavy Ivan (alnst) fick̲i̲n̲ / I̲R̲L̲. ❀ 
+ - Till yume
