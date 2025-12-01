@@ -19,4 +19,4 @@
 
 
 
-Don't copy or take inspo  ( without permission. )
+Don't copy or take inspo  ( without permission. ) !
